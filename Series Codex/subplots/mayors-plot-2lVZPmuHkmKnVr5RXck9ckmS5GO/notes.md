@@ -1,0 +1,9 @@
+**How It Creates Intrigue, Interest, and Conflict:**
+
+**Multiple Suspects with Motives**: The secret initiative creates immediate conflict in the town, as news of Reggie’s plans begins to leak out following his death. Residents are divided—some, like local business owners, are in favor of the development, seeing it as a lifeline for their struggling ventures. Others, especially those with long family histories in Seabourne, are vehemently opposed, fearing it will destroy the character of the town. This division means there are several potential suspects, all with different motives for wanting Reggie out of the way.
+
+**The Scandal Resurfaces**: As Daniel and Chloe dig deeper into Reggie’s past, they uncover hints of the old scandal. The more they learn, the more they realize that Reggie wasn’t just the affable mayor everyone thought he was—he had secrets that could have easily made him enemies, not just in Seabourne but beyond. This discovery adds a layer of intrigue, as readers are drawn into a mystery that spans both time and geography.
+
+**Internal Conflict**: The subplot also creates internal conflict within Daniel and Chloe. As they uncover the less savory aspects of Reggie’s life, they must grapple with the idea that someone they—and the town—trusted wasn’t entirely who he seemed to be. This realization forces them to confront their own beliefs about justice and morality, especially when the lines between right and wrong become blurred.
+
+**Tension and Suspense**: The anonymous letters serve as a thread of suspense throughout the story. As Daniel and Chloe piece together their meaning, they lead to a dramatic confrontation where the truth about Reggie’s past and Henry Davenport’s motivations come to light. The tension builds as the duo gets closer to the truth, culminating in a satisfying but unexpected resolution that ties both the main plot and the subplot together.
